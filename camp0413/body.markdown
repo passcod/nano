@@ -29,4 +29,14 @@ just over half a k from the 10k mark. The Everfyres never failed; the name
 kinda sorta implied that! The only plausible explanation was that someone had
 taken them, covered them, moved them, or destroyed them. But nobody else than
 her went past 5k, the last limit of the maintained zone, and the start of the
-abandoned tunnel, west side.
+abandoned tunnel, west side. Still. She couldn't go further. One of the
+conditions for her being allowed that far was that a constant line of light was
+present between her and the rest of the human world. It was one of the few
+rules she followed, mostly because it made sense, although she would have never
+admitted that, prefering to refer to the authority who had decreed it. Keeping
+a line of light, though, was the only way anyone would go in the abandoned
+tunnel if she went missing or didn't get back. Accidents could always happen.
+Besides, being completely isolated is nice in theory, but absolutely terrifying
+in practice. It would certainly be nice to retreat to some island out there,
+with nobody around for most of the year, and no worries whatsoever… but these
+were dreams only, and had no way of ever happening. Right?
