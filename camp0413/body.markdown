@@ -25,4 +25,8 @@ had figured she wouldn't need them. And on any other day she would have figured
 right.
 
 On that day, though, she was perplexed to find a wall of darkness greeting her
-just over half a k from the 10k mark.
+just over half a k from the 10k mark. The Everfyres never failed; the name
+kinda sorta implied that! The only plausible explanation was that someone had
+taken them, covered them, moved them, or destroyed them. But nobody else than
+her went past 5k, the last limit of the maintained zone, and the start of the
+abandoned tunnel, west side.
