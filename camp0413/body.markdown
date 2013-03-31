@@ -40,3 +40,25 @@ Besides, being completely isolated is nice in theory, but absolutely terrifying
 in practice. It would certainly be nice to retreat to some island out there,
 with nobody around for most of the year, and no worries whatsoever… but these
 were dreams only, and had no way of ever happening. Right?
+
+_No need to get sidetracked,_ she thought. _There's still the problem of how
+this happened, what I'm going to do about it, when do I do that, and most
+importantly,_ why _this is happening._ She sat down and began grumbling.
+_Animals? Past the air lock, impossible. They could have gotten through from
+the other side, and_ that _would be something. But why would they go and take
+the Everfyre and then bring it back?_ Something was happened, but she couldn't
+explain it. _Too little info. I need more data, and the only way to get it is
+onwards._
+
+She got up and looked into the darkness, then trembled briefly before letting
+out a sigh:
+
+- Illian, poor girl, you're going to need to ask someone to go with you. Just
+  in case something — or someone — _is_ indeed in there. Just in case.
+
+The words, without anyone in hearing range, bounced happily around the walls
+and got lost. Merely five seconds later, in the darkness, a last remnant of an
+echo reached a figure lying down on the smooth concrete. And, although you'll
+just have to take my word for it, the tunnel in this part being pitch black,
+nearly opaque, a smile formed on tired lips, before returning to the nothing,
+and the figure returning to dreaming.
